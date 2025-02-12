@@ -1,5 +1,7 @@
 Oscar OlivettiAyer
 Muy bien. La redacción es ligeramente confusa, pero las ideas ya las tienes planteadas. Trabajar en eso
+
+
 La bebe Teresa
 La lectura de la cual hablamos en clase se me hizo demasiado interesante ya que habla sobre un problema que es un poco contradictorio y problemático para ciertas personas, ya que se habló sobre la situación de la bebe Teresa y como con la donación de sus órganos pudo haber salvado a varios niños pero que la intervención de personas dedicadas a lo moralmente correcto lo evito y provocó que las vidas que puso haber salvado solo tuvieron falsas esperanzas.
  también se habló de la pregunta de  si una persona nace con anencefalia es considerada humano o no por el hecho de que al momento de nacer no tiene la capacidades motoras esenciales en una persona como por ejemplo, tomar sus propias decisiones, no tener una vida “normal” ya que solo nacen con la habilidad de saber respirar , así que con estas pocas capacidades una cantidad de personas no los consideran humanos, si no que criaturas.
